@@ -1,5 +1,8 @@
 ## Bem-vindo(a) ao perfil do Eduardo Katsujiro 🤓
 
+![CatWorkItGIF](https://github.com/EduardoKatsujiro/EduardoKatsujiro/assets/157705354/df5a4464-85f6-4234-afe6-a600be0b1d5a)
+
+
 
  <div>
    <a href="https://github.com/EduardoKatsujiro">
